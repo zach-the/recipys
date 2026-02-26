@@ -8,9 +8,9 @@
 - 6tbsp flour
 - 4 cup milk
 - 1 tbsp dried mustard
-- 2 cups mozzarellla cheese
-- 1 cups cheddar cheese
-- 1/2 cup parmesean cheese
+- 4 cups mozzarellla cheese
+- 2 cups cheddar cheese
+- 1 cup parmesean cheese
 
 ### Instructions
 - cook pasta
