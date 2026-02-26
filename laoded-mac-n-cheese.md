@@ -10,7 +10,7 @@
 - 1 tbsp dried mustard
 - 4 cups mozzarellla cheese
 - 2 cups cheddar cheese
-- 1 cup parmesean cheese
+- 1/2 cup parmesean cheese
 
 ### Instructions
 - cook pasta
