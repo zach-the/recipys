@@ -6,7 +6,7 @@
 - 6tbsp flour
 - 16oz can condensed beef broth
 - 1/2tsp dried mustard
-- 8oz sliced mushrooms
+- 8oz sliced mushrooms (in can)
 - 1/2 cup sour cream
 - 1/2 cup white wine
 
