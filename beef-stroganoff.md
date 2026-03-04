@@ -9,6 +9,7 @@
 - 8oz sliced mushrooms (in can)
 - 1/2 cup sour cream
 - 1/2 cup white wine
+- 2ib egg noodles
 
 ### Instructions
 - cut beef into very thin strips, about 2 inches long. melt butter into skillet. add beef and white part of minced onions, season with salt and pepper. 
