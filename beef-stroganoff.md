@@ -12,6 +12,6 @@
 - 2ib egg noodles
 
 ### Instructions
-- cut beef into very thin strips, about 2 inches long. melt butter into skillet. add beef and white part of minced onions, season with salt and pepper. 
+- cut beef into very thin strips, about 2 inches long. melt butter into skillet. add beef and white part of minced onions, season with salt and pepper. work in the flour.
 - add beef broth and mustard. bring to a boil, then simmer for 45 minutes. add white wine, mushrooms, and sour cream. simmer for another 10 minutes.
 - serve over the noodles. sprinkle green parts of green onions
